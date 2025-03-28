@@ -2,7 +2,12 @@
 
 Vous avez entendu parler du Shilajit de Primal Suppléments et vous vous demandez si ça vaut vraiment le coup ? Vous êtes au bon endroit pour avoir une **réduction immédiate** et des infos utiles avant de tester. En ce moment, le code promo **LMC10** vous offre **-10%** sur tous les produits Primal Suppléments, la marque française qui propose l'un des Shilajit les plus purs du marché.
 
-➡️ **[Utilisez le code LMC10 sur primalsupplements.fr](https://primalsupplements.fr/?sca_ref=8439359.kLI1QMIcju)** pour activer automatiquement votre réduction.
+## 📋 Copiez ce code promo et économisez 10%
+
+```
+LMC10
+```
+👉 **[Utilisez ce code sur primalsupplements.fr](https://primalsupplements.fr/?sca_ref=8439359.kLI1QMIcju)**
 
 📌 **Pour plus de codes promo et d'offres exclusives, consultez notre [page dédiée aux codes promo Primal Suppléments](https://www.shilajit.club/code-promo/primal-complements-shilajit-code-promo)**
 
@@ -75,10 +80,15 @@ Utilisé depuis des millénaires en médecine ayurvédique, le Shilajit est reco
 
 ## 🎉 Comment utiliser le code promo LMC10 ?
 
-1. Rendez-vous sur [primalsupplements.fr](https://primalsupplements.fr/?sca_ref=8439359.kLI1QMIcju)
-2. Choisissez vos produits préférés
-3. Entrez le code promo **LMC10** dans le champ dédié lors du paiement
-4. Profitez de **-10% de réduction** sur votre commande !
+1. Copiez le code ci-dessous :
+   ```
+   LMC10
+   ```
+
+2. Rendez-vous sur [primalsupplements.fr](https://primalsupplements.fr/?sca_ref=8439359.kLI1QMIcju)
+3. Choisissez vos produits préférés
+4. Collez le code promo **LMC10** dans le champ dédié lors du paiement
+5. Profitez de **-10% de réduction** sur votre commande !
 
 Pour découvrir d'autres codes promo et offres exclusives, consultez notre [page de codes promo Primal Suppléments](https://www.shilajit.club/code-promo/primal-complements-shilajit-code-promo).
 
@@ -95,11 +105,14 @@ Pour tirer le maximum de bénéfices de votre Shilajit Primal Suppléments :
 
 ## 📢 Ne ratez pas cette offre limitée
 
-✅ **-10% sur votre commande** avec le code promo **LMC10**  
+✅ **-10% sur votre commande avec :**
+```
+LMC10
+```
+
+✅ **[Activer le code promo ici](https://primalsupplements.fr/?sca_ref=8439359.kLI1QMIcju)**  
 ✅ **Shilajit premium d'altitude, pur et testé**  
 ✅ **Paiement sécurisé & livraison rapide**  
-
-🔗 **[Cliquez ici pour activer votre code promo](https://primalsupplements.fr/?sca_ref=8439359.kLI1QMIcju)**  
 
 🚀 **Boostez votre énergie naturellement dès aujourd'hui !**
 

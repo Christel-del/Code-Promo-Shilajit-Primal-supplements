@@ -1,4 +1,4 @@
-# Code Promo Primal Suppléments Shilajit 🌿💎
+# Code Promo Primal Suppléments Shilajit -10% | LMC10 🌿💎
 
 Vous avez entendu parler du Shilajit de Primal Suppléments et vous vous demandez si ça vaut vraiment le coup ? Vous êtes au bon endroit pour avoir une **réduction immédiate** et des infos utiles avant de tester. En ce moment, le code promo **LMC10** vous offre **-10%** sur tous les produits Primal Suppléments, la marque française qui propose l'un des Shilajit les plus purs du marché.
 
